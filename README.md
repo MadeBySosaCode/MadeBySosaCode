@@ -1,4 +1,4 @@
-![me](https://github.com/user-attachments/assets/38675edf-d089-4dea-8788-01ab9554545b)
+![me](https://github.com/MadeBySosaCode/image/blob/main/2D_cartoon_Disney_character_di_9-modified.png?raw=true)
 
     👑 Hi, my name is SosaCode, I'm 18 years old 
  
