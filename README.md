@@ -3,7 +3,7 @@
 
 # 👑 Hey, I'm SosaCode
 
-### 💻 18 y/o Developer | FiveM Script Creator | Forever Learning
+### 💻 19 y/o Developer | FiveM Script Creator | Forever Learning
 
 ---
 
